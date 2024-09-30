@@ -8,7 +8,6 @@
 
 - 📫 To reach me **azharsalam137@gmail.com**
 
-- ⚡ Fun fact **i think i am not funny**
 
 <br>
 
